@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @Natsucantaim
-- 👀 I’m interested in Lexi
-- 🌱 I’m currently learning Lexi
-- 💞️ I’m looking to collaborate on Lexis body
-- 📫 How to reach me call Lexi
+- 👀 I’m interested in Lexi, gaming, sports and money
+- 🌱 I’m currently learning how to make money
+- 💞️ I’m looking to collaborate on nothing just yet
+- 📫 How to reach me https://tinyurl.com/58kwbdrx
 - 😄 Pronouns: That/Guy
 - ⚡ Fun fact: Lexi is my wife
 
